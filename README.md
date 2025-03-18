@@ -2,9 +2,9 @@
 
 Decomposer Sitala is a bio-enzyme-based solution used to accelerate the decomposition of crop residues, reducing stubble burning and improving soil health.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for **Decomposer Sitala**:
